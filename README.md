@@ -4,7 +4,7 @@
 
 - 👔 I’m currently working at [Wertgarantie](https://www.wertgarantie-group.com/)
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: I have a pet cats named Luna 🐈 and Lily 🐈‍⬛
+- ⚡ Fun fact: I have pet cats named Luna 🐈 and Lily 🐈‍⬛
 
 ### My Social Media Accounts
 - 🌎 [LinkedIn](https://www.linkedin.com/in/eminakcay/)
